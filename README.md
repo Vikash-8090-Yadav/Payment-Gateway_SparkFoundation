@@ -2,7 +2,7 @@
 <br>
 <h1>
 To run this website  click on this link below <br>
-https://vikash-8090-yadav.github.io/Payment-Gateway_SparkFoundation/donation.html
+https://vikash-8090-yadav.github.io/Payment-Gateway_SparkFoundation/
 </h1>
 
 # NEEDY-Donr
