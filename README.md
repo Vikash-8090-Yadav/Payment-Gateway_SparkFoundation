@@ -31,7 +31,7 @@ We believe, ‘Service to oppressed humanity is service to the almighty’ and h
 # U CAN CHECK THE VIDEO FOR THIS PROJECT BY CLICKING ON THE LINK BELOW
 <br>
 
-# [Project video](https://youtu.be/AnqDyx7UWPk)
+# [Project video](https://youtube.com/shorts/1w4Xjm3pk1M?feature=share)
 
 <br>
 
