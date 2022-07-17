@@ -22,6 +22,9 @@ We believe, ‘Service to oppressed humanity is service to the almighty’ and h
 
 ![Screenshot from 2022-07-17 23-26-50](https://user-images.githubusercontent.com/85225156/179418639-2bb1f71d-93aa-4e9f-892f-6c73b5794e1e.png)
 
+# Payment Page
+
+![Screenshot from 2022-07-17 23-29-10](https://user-images.githubusercontent.com/85225156/179418773-89a019bc-fba7-4696-a4c2-9aac8b169a8d.png)
 
 <br>
 
